@@ -1,1 +1,1 @@
-# Th-c-h-nh-Lab-1-NT106.Q12
+# Thực hành Lab-1-NT106.Q12
